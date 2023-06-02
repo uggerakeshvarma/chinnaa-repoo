@@ -1,0 +1,2 @@
+# chinnaa-repoo
+allow
